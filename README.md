@@ -1,6 +1,6 @@
 ## 👋 Hi, there!
 
-- 🌱 I’m currently fulfilling mandatory military service @ ROkA (2022.04 ~ )
+- 🌱 I’m currently fulfilling mandatory military service @ ROKA (2022.04 ~ )
 - 📫 How to reach me: <gusgh424@gmail.com>
 
 <!---
